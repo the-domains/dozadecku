@@ -9,19 +9,23 @@ description: >-
   prostor pro fantazii. Je vysoký? Pohledný? Divoký nebo mírný? Snad to není
   dívka! Tyto myšlenky se jí honily hlavou, zatímco se neznámé ruce ladně
   přesunuly od krku k jejím pevným prsům, aby je důkladně poznaly.
-dateModified: '2016-07-11T20:30:00.836Z'
-datePublished: '2016-07-11T20:30:03.031Z'
+dateModified: '2016-07-11T20:31:23.390Z'
+datePublished: '2016-07-11T20:31:26.246Z'
 title: ''
 author: []
-starred: false
 sourcePath: >-
   _posts/2016-07-11-sedela-na-zidli-a-mechanicky-vkladala-data-do-pocitace-tu-s.md
+isBasedOnUrl: >-
+  https://the-grid-user-content.s3-us-west-2.amazonaws.com/b55d5b4e-94aa-41d0-996e-cef2ca90a45b.png
+starred: false
 inFeed: true
 hasPage: false
 inNav: false
 _type: MediaObject
 
 ---
+![](https://the-grid-user-content.s3-us-west-2.amazonaws.com/b55d5b4e-94aa-41d0-996e-cef2ca90a45b.png)
+
 Seděla na židli a mechanicky vkládala data do počítače. Tu se k ní zezadu kdosi nenápadně přiblížil. O jeho přítomnosti netušila až do chvíle, kdy její krk jemně uchopily dvě dlaně a začaly jej pomalu masírovat. Přemýšlela, kdo by to mohl být, ale zjistit to nemohla, protože kdykoli se pokusila otočit hlavu, jeho ruce, ač jinak něžné, jí v pohybu rázně zabránily. To, že nevěděla, do čí moci se dostala, pro ni bylo sice trochu nepříjemné, ale nechalo jí ohromný prostor pro fantazii. Je vysoký? Pohledný? Divoký nebo mírný? Snad to není dívka! Tyto myšlenky se jí honily hlavou, zatímco se neznámé ruce ladně přesunuly od krku k jejím pevným prsům, aby je důkladně poznaly.
 
 Na krku ucítila teplý dech. Už věděla, že je to muž. Tu a tam jí totiž popíchaly jeho vousy, když jí líbal krk a uši. Ruce mezitím jemně mačkaly prsa a krouživými pohyby hladily bradavky. Ty pomalu rostly. Přestávala se kontrolovat. Ve chvíli, kdy jednou rukou sjel z prsa na břicho -- jak nejníž jej pustil lem kalhot, by si přála, aby do ní ihned vstoupil. Když jí dal svými dotyky instrukci, aby vstala, ale neotáčela se, doufala, že ten okamžik přišel.
@@ -41,6 +45,7 @@ Neznámého její vášnivá reakce rozdráždila natolik, že jazykem kmital ja
 Potřebovala však cítit, jak její těsné půlky obepínají něco většího než jazyk...
 
 Muž si prst důkladně naslinil a pomalu, něžně do ní vnikl. Nechala jej zajet jak nejhlouběji mohl. Vychutnávala jeho pomalé krouživé pohyby, kterými on poznával její nejintimnější partie.
+![](https://the-grid-user-content.s3-us-west-2.amazonaws.com/00b3b7bd-558e-46aa-952c-94b7f180b6d8.gif)
 
 Byla rozdrážděná natolik silně, že zatoužila poznat, jak její zadeček chutná. Prudce se otočila a jeho prst rázem zmizel v její puse. Při té příležitosti si konečně mohla muže prohlédnout.
 
