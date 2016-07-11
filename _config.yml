@@ -1,0 +1,14 @@
+layout_spectrum: 0.6305483852047473
+typography_spectrum: 0.746356085408479
+color:
+  brandStrength: 0.9207561884541065
+  lightness: 0.25299172243103385
+  saturation: 0.6760503684636205
+  rhythmicContrast: 0.08250967343337834
+  brandColors:
+    - '#FF6700'
+    - '#EBEBEB'
+    - '#C0C0C0'
+    - '#3A6EA5'
+    - '#004E98'
+name: dozadecku
